@@ -32,9 +32,11 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Body#####
-Greate Brittaines noble and worthy councell of warr1624Approx. 2 KB of XML-encoded text transcribed 
+
+1. Greate Brittaines Noble and Worthy Councell of Warr
+
 #####Back#####
-Greate Brittaines noble and worthy councell of warr1624Approx. 2 KB of XML-encoded text transcribed 
+Printed for Thomas Archer, in Popes head & Ally, and are to be ſold at his ſhop in Popes head Alley,
 **Types of content**
 
   * There are 16 **verse** lines!
